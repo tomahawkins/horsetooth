@@ -305,12 +305,13 @@ I think we appreciated both aspects.
 - Killick Hitch
 - Climbing Specific Knots
   - Figure Eight
-  - Prusik
+  - Prusik Loop with Double Fisherman's
   - Blake's Hitch
   - Alpine Butterfly
   - Munter Hitch and Mule
   - Climber's Coil
 
+## Untangling Tangled Rope
  
 # Poly Rope and Splicing
 
