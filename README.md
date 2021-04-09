@@ -429,8 +429,8 @@ Notable Events
     -   Merck's mom screaming because someone got hit in the forehead.
     -   BB gun fights substituting pasta noodles for BBs.
 -   Building BMX jumps below the high water line.
--   John belaying me up the middle tooth. Last move required a minor
-    hip dislocation.
+-   John belaying me up the middle tooth. Last chimney move required a
+    minor hip dislocation.
 -   John free soloing face of south tooth. James free soloing anything.
 -   Numerous sledding expeditions. Huge jumps, lots of
     undocumented concussions.
@@ -442,14 +442,20 @@ Notable Events
     Then exploring all the boats in all the sheds.
 -   Map out the various motorcycle/4-wheeler tracks throughout
     the neighborhoods.
--   4-wheeler "tag".
+-   4-wheeler tag.
 -   Steph and Tom getting caught by the cops on her 4-wheeler. Jeff and
     Merck coming around the corner at the same time.
--   Collecting the park entry fees from the parking lot depost station.
+-   Collecting the park entry fees from the parking lot deposit station.
 -   Several kids going in to the little store to buy all their
     toilet paper.
 -   Dry ice bombs.
 -   Mailbox bowling.
 -   Road construction barrel pinball.
 -   Acquiring a school bell.
+-   Going on a hike, getting cliffed out, then lowering Michael down a
+    cliff face by hand (to lazy to find an easier way down).
+-   Harv borrowing his mom's car and then practicing for the Mickey
+    Thopson Grand Prix down at reservoir. My biggest regret was not
+    being there. Those who were told stories of serious air time in a
+    full up car.
 
