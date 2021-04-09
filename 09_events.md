@@ -34,3 +34,7 @@
   coming around the corner at the same time.
 - Collecting the park entry fees from the parking lot depost station.
 - Several kids going in to the little store to buy all their toilet paper.
+- Dry ice bombs.
+- Mailbox bowling.
+- Road construction barrel pinball.
+- Acquiring a school bell.
