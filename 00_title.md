@@ -5,7 +5,7 @@ Idea:
 Book is a series of engineering tools, tips and, projects,
 covering bike, board (skim, snow, wake, skate), motor sports,
 and general adventuring in and around the Horsetooth areas
-interspersed with stories of the [events](events.md) that took place.
+interspersed with stories of the [events](09_events.md) that took place.
 
 One goal is to convey achieving a lot with a little:
 growing up we didn't have
