@@ -21,5 +21,16 @@
     - BB gun fights substituting pasta noodles for BBs.
 - Building BMX jumps below the high water line.
 - John belaying me up the middle tooth.  Last move required a minor hip dislocation.
-- Numerous sledding expeditions.  Huge jumps, probably lots of undocumented concussions.
+- John free soloing face of south tooth.  James free soloing anything.
+- Numerous sledding expeditions.  Huge jumps, lots of undocumented concussions.
 - Trips to the falls.  Goonie rock.  James going free solo into the chasm of the falls.
+- Turning Harv's basement into an RC track.
+- Fon driving his 3-wheeler off a cliff.
+- Digging a hole under an exterior wall to get into the boat sheds.
+  Then exploring all the boats in all the sheds.
+- Map out the various motorcycle/4-wheeler tracks throughout the neighborhoods.
+- 4-wheeler "tag".
+- Steph and Tom getting caught by the cops on her 4-wheeler.  Jeff and Merck
+  coming around the corner at the same time.
+- Collecting the park entry fees from the parking lot depost station.
+- Several kids going in to the little store to buy all their toilet paper.

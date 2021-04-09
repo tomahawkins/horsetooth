@@ -12,10 +12,17 @@ One goal is to convey achieving a lot with a little: growing up we
 didn't have much in term of money, tools, materials, or places to work,
 but we made due and had a blast doing it.
 
-Stories provide GPS coordinates of where events took place.
+Stories provide GPS coordinates of where the various actors lived and
+where events took place.
 
 Introduction
 ============
+
+Principle participants:
+
+Jeromy Deale ("Deale") Fon Duke ("Allen") John Frederick Michael
+Frederick Jeff Gerard Aaron Haas Mark Harvey ("Harv") Tom Hawkins James
+Kennedy Jerry Kennedy Jeremy Merck ("Merck")
 
 Before entering kindergarten in 1979, my family moved to the foothills
 of the Colorado Rockies just west of Fort Collins. Shortly in the years
@@ -27,8 +34,8 @@ the top of Horsetooth rock you can see Cheyenne, Wyoming to the north,
 Pike's Peak to the south, Long's Peak to the west, and the western edge
 of The Great Plains to the east. Horsetooth is also is the name of the
 reservoir that fills the valley between the first and second hogback
-ridges nearest to town. The five of us lived in the surrounding hills
-near the shores of Inlet Bay: the largest of the seven or eight coves of
+ridges nearest to town. We lived in the surrounding hills near the
+shores of Inlet Bay: the largest of the seven or eight coves of
 Horsetooth Reservoir; named because it provided the inlet to the
 reservoir with the source waters originated from the Colorado River, odd
 considering that the Colorado is .
@@ -46,11 +53,7 @@ But this book is also about a group of friends growing up in the 80's
 and 90's in the foothills west of Fort Collins, Colorado; an area known
 as Horsetooth, named for the rock resting on the highest ridge
 overlooking the town and also the reservoir that fills the valley
-between the first pair of hogback ridges. John Frederick, Aaron Haas,
-Mark Harvey, Tom Hawkins, and James Kennedy made of the core group and
-were often accompanied by Micheal (John's brother), Jerry (James'
-brother), and Fon "Allen" Duke who moved to the neighborhood and joined
-the group for a few years.
+between the first pair of hogback ridges.
 
 Preliminaries
 =============
@@ -420,8 +423,21 @@ Notable Events
 -   Building BMX jumps below the high water line.
 -   John belaying me up the middle tooth. Last move required a minor
     hip dislocation.
--   Numerous sledding expeditions. Huge jumps, probably lots of
+-   John free soloing face of south tooth. James free soloing anything.
+-   Numerous sledding expeditions. Huge jumps, lots of
     undocumented concussions.
 -   Trips to the falls. Goonie rock. James going free solo into the
     chasm of the falls.
+-   Turning Harv's basement into an RC track.
+-   Fon driving his 3-wheeler off a cliff.
+-   Digging a hole under an exterior wall to get into the boat sheds.
+    Then exploring all the boats in all the sheds.
+-   Map out the various motorcycle/4-wheeler tracks throughout
+    the neighborhoods.
+-   4-wheeler "tag".
+-   Steph and Tom getting caught by the cops on her 4-wheeler. Jeff and
+    Merck coming around the corner at the same time.
+-   Collecting the park entry fees from the parking lot depost station.
+-   Several kids going in to the little store to buy all their
+    toilet paper.
 

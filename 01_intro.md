@@ -1,5 +1,19 @@
 # Introduction
 
+Principle participants:
+
+Jeromy Deale  ("Deale")
+Fon Duke  ("Allen")
+John Frederick
+Michael Frederick
+Jeff Gerard
+Aaron Haas
+Mark Harvey ("Harv")
+Tom Hawkins
+James Kennedy
+Jerry Kennedy
+Jeremy Merck ("Merck")
+
 Before entering kindergarten in 1979, my family moved to the foothills
 of the Colorado Rockies just west of Fort Collins.
 Shortly in the years that followed I made friends with
@@ -13,7 +27,7 @@ and the western edge of The Great Plains to the east.
 Horsetooth is also is the name
 of the reservoir that fills the valley between the first
 and second hogback ridges nearest to town.
-The five of us lived in the surrounding hills
+We lived in the surrounding hills
 near the shores of Inlet Bay: the largest of the seven
 or eight coves of Horsetooth Reservoir; named because
 it provided the inlet to the reservoir with the source
@@ -34,10 +48,6 @@ How to build and construct fun stuff few resources and non budget.
 But this book is also about a group of friends growing up in the 80's and 90's in the foothills west of Fort Collins, Colorado;
 an area known as Horsetooth, named for the rock resting on the highest ridge overlooking
 the town and also the reservoir that fills the valley between the first pair of hogback ridges.
-John Frederick, Aaron Haas, Mark Harvey, Tom Hawkins, and James Kennedy made of the core
-group and were often accompanied by Micheal (John's brother), Jerry (James' brother),
-and Fon "Allen" Duke who moved to the neighborhood and joined the group for a few years.
-
 
 
 

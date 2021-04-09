@@ -12,6 +12,7 @@ growing up we didn't have
 much in term of money, tools, materials, or places to work, but we
 made due and had a blast doing it.
 
-Stories provide GPS coordinates of where events took place.
+Stories provide GPS coordinates of where the various actors lived
+and where events took place.
 
 
