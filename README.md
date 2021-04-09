@@ -461,4 +461,7 @@ Notable Events
     full up car.
 -   Crawdad collecting at the inlet leading to crawdad cagematches. Did
     anyone jump from the bridge? We climbed under it a lot.
+-   Aaron spinging cookies in the campgrounds in his Subaru. Old
+    windsurfer guy blocks his exit. Aaron waves and offroads it
+    around him. Total badass.
 
