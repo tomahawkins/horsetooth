@@ -1,18 +1,18 @@
 # Introduction
 
-Principle participants:
+Principal Actors:
 
-Jeromy Deale  ("Deale")
-Fon Duke  ("Allen")
-John Frederick
-Michael Frederick
-Jeff Gerard
-Aaron Haas
-Mark Harvey ("Harv")
-Tom Hawkins
-James Kennedy
-Jerry Kennedy
-Jeremy Merck ("Merck")
+- Jeromy Deale  ("Deale")
+- Fon Duke  ("Allen")
+- John Frederick
+- Michael Frederick
+- Jeff Gerard
+- Aaron Haas
+- Mark Harvey ("Harv")
+- Tom Hawkins
+- James Kennedy
+- Jerry Kennedy
+- Jeremy Merck ("Merck")
 
 Before entering kindergarten in 1979, my family moved to the foothills
 of the Colorado Rockies just west of Fort Collins.
