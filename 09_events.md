@@ -16,6 +16,7 @@
 - Pyro pits and fun with white gas and aerosol cans.
     - Replicating lighting the torch of the 1984 Summer Olympics.
 - Finding the abandon house on Kano.  Tony Hanson moved into it a few years later.
+- Getting into an abandon trailer.
 - BB gun fights that quickly escalated beyond the 1-pump rule.
     - Merck's mom screaming because someone got hit in the forehead.
     - BB gun fights substituting pasta noodles for BBs.
@@ -43,3 +44,5 @@
 - Harv borrowing his mom's car and then practicing for the Mickey Thopson Grand Prix down at
   reservoir.  My biggest regret was not being there.  Those who were told stories of
   serious air time in a full up car.
+- Crawdad collecting at the inlet leading to crawdad cagematches.
+  Did anyone jump from the bridge?  We climbed under it a lot.
